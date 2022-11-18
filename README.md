@@ -1,0 +1,6 @@
+# SOBRE MIN
+
+- 卍 Rafael 卍
+- 😎 JOGADOR DE LOLZIN 😎
+- 💪 MAIN  SETT, YONE
+- ♣️ ATHLETICANO  ♥️
